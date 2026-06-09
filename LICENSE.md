@@ -1,4 +1,4 @@
-#  
+#  dandy's world secure Scripts is the best dandy's world Script, featuring aimbot and auto-heal. Safe and powerful for all your needs.
 
 
 
